@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NahzCoding101
+- 👀 I’m interested in ... Playing games and coding or just playing any sort of sport or boardgame
+- 🌱 I’m currently learning ... Allot of diffrent coding languages
+- 💞️ I’m looking to collaborate on ... no one
+- 📫 How to reach me ... my email nahiyank09@gmail.com 
+- 😄 Pronouns: ... he/him 
+- ⚡ Fun fact: ... im cool
